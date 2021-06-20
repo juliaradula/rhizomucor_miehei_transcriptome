@@ -1,1 +1,1 @@
-# teste2
+# rizhomucor_miehei_transcriptome
